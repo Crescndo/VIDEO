@@ -1,41 +1,59 @@
-# !!+@>[OffiCial@!!#@]* Vergil Ortiz Jr vs Israil Madrimov LIVE STreams ON TV Channel 22 February
+Artur Beterbiev will stake his undisputed and unbeaten record for glory against Dmitry Bivol tonight at Riyadh Season's The Last Crescendo , live on DAZN Pay-Per-View .
 
-Uncrowned has Artur Beterbiev vs. Dmitry Bivol 2 live results, round-by-round updates, highlights, ring walks and start time for the Beterbiev vs. Bivol 2 fight card on Saturday at the Anb Arena in Riyadh, Saudi Arabia. Undisputed light heavyweight champion Beterbiev defends his WBA, WBO, IBF, and WBC belts against the former WBA champion Bivol in a hotly-anticipated title rematch, which sits atop a card that is being declared by some as the best in boxing history.
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://mr-juniior.blogspot.com/2025/02/box2.html)**
 
-Beterbiev (21-0, 20 KOs) and Bivol (23-1, 12 KOs) delivered a tremendous contest in their undisputed championship clash this past October in Riyadh. On that occasion, Beterbiev edged a controversial majority decision over Bivol, with the majority of viewers both at home and in the arena feeling that Bivol had done enough to have his hand raised at the end of 12 electric rounds
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://mr-juniior.blogspot.com/2025/02/box2.html)**
 
-As a result, Beterbiev and Bivol meet in an immediate rematch for all four belts on Saturday.
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEglVcqTM2aBaq42q23oWZFqorZNra3E6fZ80DBdMLXnzaYK96Uwn9_kB21KlzNX7p9_59eJRuBHhVnA6qmc5cpV9iczmj2YVl3XettG127ehyphenhyphen365VgaAPRymdnWBzW6arsjYoHdDK_vz-dECj3vF4cG8vCHWnc1JA-HlZJB75x_gP2UeISK5o365j9L10Q/w520-h293/boxing%20main.gif)](https://mr-juniior.blogspot.com/2025/02/box2.html)
 
-More from Uncrowned
-Additional select Yahoo articles
 
-Artur Beterbiev vs. Dmitry Bivol 2 live stream online: Watch today's blockbuster boxing card live now
-Oleksandr Usyk wants Daniel Dubois next for undisputed title bout despite Joseph Parker cancelation
-Artur Beterbiev vs. Dmitry Bivol 2 weigh-in results: Beterbiev heavier than Bivol, Joseph Parker heaviest of career
-In the co-main event, Joseph Parker (35-3, 23 KOs) defends his WBO interim heavyweight title against Martin Bakole (21-1, 16 KOs). Parker was supposed to challenge IBF heavyweight champion Daniel Dubois in Saturday's co-feature, however Dubois was forced to withdraw just days out from the event due to illness, leading Martin Bakole to step in as a last-second replacement and save Parker's spot on the show.
+Four months after the former swept the light heavyweight division in their first encounter, they will throw hands for a second time at the Kingdom Arena this weekend.
 
-Two other full world title fights also line the card, as Shakur Stevenson (22-0, 10 KOs) defends his WBC lightweight crown against another late replacement in Josh Padley (15-0, 4 KOs), and Hamzah Sheeraz (21-0, 17 KOs) makes his first attempt at world honors by facing the reigning WBC middleweight titleist Carlos Adames (24-1, 18 KOs).
+Atop a fight card billed as one of the greatest of all-time , Beterbiev has the chance to stamp his authority on a division he has long appeared to be the kingpin within.
 
-Beterbiev vs. Bivol 2 prelims begin at 10 a.m. ET and can be watched live on Uncrowned. The main card starts at 11 a.m. ET on DAZN pay-per-view and main event ring walks are expected around 6 p.m. ET.
+But Bivol, whose majority decision loss was questioned by many sat ringside last October, knows this might be his best shot for redemption in the Saudi Arabian capital.
 
-Follow all of the action with Uncrowned's live results, highlights and play-by-play of the main card below.
+DAZN News has everything you need to know ahead of Artur Beterbiev versus Dmitry Bivol 2.
 
-Main Card (LIVE NOW, DAZN PPV)
-Undisputed light heavyweight title: Artur Beterbiev vs. Dmitry Bivol
+Artur Beterbiev vs Dmitry Bivol 2 fight date, start time
+Artur Beterbiev vs Dmitry Bivol 2 will take place  this Saturday (February 22)  at Riyadh Season's The Last Crescendo, with the whole card set to be shown live on DAZN.
 
-WBO interim heavyweight title: Joseph Parker vs. Martin Bakole
+The main fight card and DAZN broadcast will begin at 7:00pm KSA; 4:00pm GMT; 11:00am ET; 8:00am PT.
 
-WBC lightweight title: Shakur Stevenson vs. Josh Padley
+Beterbiev versus Bivol will be 10:30pm GMT; 5:30pm ET; 3:30pm PT; 1:30am KSA.
 
-WBC middleweight title: Carlos Adames vs. Hamzah Sheeraz
+Date : Saturday, February 22
+Time : 7:00pm KSA; 4:00pm GMT; 11:00am ET; 8:00am PT
+Artur Beterbiev vs. Dmitry Bivol 2 main event ringwalks (approx) : 2:00am KSA; 11:00pm GMT; 6:00pm ET; 3:00pm PT
+Fight	KSA	GMT	ET	PT
+Artur Beterbiev vs Dmitry Bivol 2	2:00am	11:00pm	6:00pm	3:00pm
+Joseph Parker vs Martin Bakole	12:40am	9:40pm	4:40pm	1:40pm
+Shakur Stevenson vs Josh Padley	11:35pm	8:35pm	3:35pm	12:35am
+Carlos Adames vs Hamzah Sheeraz	10:35pm	7:35pm	2:35pm	11:35am
+Vergil Ortiz Jr vs Israil Madrimov	9:40pm	6:40pm	1:40pm	10:40am
+Zhilei Zhang vs Agit Kabayel	8:40pm	5:40pm	12:40pm	9:40am
+Joshua Buatsi vs Callum Smith	7:45pm	4:45pm	11:45am	8:45am
 
-WBC interim super welterweight title: Vergil Ortiz Jr. vs. Israil Madrimov
+How to watch Artur Beterbiev vs Dmitry Bivol 2?
+Artur Beterbiev vs. Dmitry Bivol 2 and the whole fight card at The Last Crescendo will be available through DAZN Pay-Per-View.
 
-WBC interim heavyweight title: Zhilei Zhang vs. Agit Kabayel
+The PPV is available to buy now at   £19.99   in UK and   $25.99   in US. Buying with DAZN enters you into a free prize draw to win tickets to Chris Eubank Jr. vs Connor Benn*.
 
-WBO interim light heavyweight title: Joshua Buatsi vs. Callum Smith
+Watch the fight night anywhere with DAZN via smart TV's, smartphones, tablets, games consoles, streaming devices and PC's / laptops.
 
-Lightweight: Mohammed Alakel vs. Engel Gomez
+Buying the Last Crescendo PPV provides a free seven-day trial of the full DAZN platform, with access to all boxing content, plus live action across football, golf, tennis, motorsport and more**.
 
-Prelims (Watch via Uncrowned)
-Super lightweight: Ziyad Almaayouf def. Jonatas de Oliveira via points (60-54)
+For PPV costs in your country and to buy now,   click here  .
+
+*UK only. Restrictions apply. See T&Cs on help.dazn.com.   Full T&C's here
+
+**Sports available in free trial dependent on country of residence
+
+Beterbiev vs Bivol 2 fight card
+Artur Beterbiev vs Dmitry Bivol ; Undisputed light heavyweight title fight, for Beterbiev's WBA, WBC, IBF, WBO and The Ring belts
+Joseph Parker vs Martin Bakole  ;  For Parker's WBO interim world title
+Shakur Stevenson vs Josh Padley  ; For Stevenson's WBC lightweight title
+Carlos Adames vs Hamzah Sheeraz ; For Adames' WBC middleweight title
+Vergil Ortiz Jr vs Israil Madrimov ; For Ortiz Jr's WBC world interim super welterweight title
+Zhilei Zhang vs Agit Kabayel ; For the vacant WBC interim heavyweight title
+Joshua Buatsi vs Callum Smith ; For Buatsi's WBO light heavyweight interim title
