@@ -1,52 +1,59 @@
-# [Here's freE Watch]+ Padley vs Stevenson LIVE STreams ON TV Channel 22 February 2025
+Artur Beterbiev will stake his undisputed and unbeaten record for glory against Dmitry Bivol tonight at Riyadh Season's The Last Crescendo , live on DAZN Pay-Per-View .
 
-Getting Artur Beterbiev and Dmitry Bivol in the ring took years of talking and speculation. On Saturday, Beterbiev and Bivol will share the ring for the second time in four months.
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://mr-juniior.blogspot.com/2025/02/box2.html)**
 
-Beterbiev got the better of Bivol on the scorecards in their October meeting, becoming undisputed light heavyweight champion in the process. The result wasn't without controversy, however, with most media outlets scoring the fight narrowly for Bivol. It wasn't a robbery, but things certainly didn't feel settled the first time around and Turki Alalshikh, the Saudi power who helped construct the first fight, called for an immediate rematch.
+**[➤►🌍📺📱👉LINK 🔴✅👉CLICK HERE TO WATCH LIVE NOW](https://mr-juniior.blogspot.com/2025/02/box2.html)**
 
-Bivol slowed in the late rounds of the first fight, possibly a result of Beterbiev's early focus on working the body. Those late rounds proved critical to the result, with Beterbiev taking a majority decision on scores of 115-113, 116-112 and 114-114.
+[![](https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEglVcqTM2aBaq42q23oWZFqorZNra3E6fZ80DBdMLXnzaYK96Uwn9_kB21KlzNX7p9_59eJRuBHhVnA6qmc5cpV9iczmj2YVl3XettG127ehyphenhyphen365VgaAPRymdnWBzW6arsjYoHdDK_vz-dECj3vF4cG8vCHWnc1JA-HlZJB75x_gP2UeISK5o365j9L10Q/w520-h293/boxing%20main.gif)](https://mr-juniior.blogspot.com/2025/02/box2.html)
 
-Speaking with Fight Hub TV, Bivol said he knows the fight will be too close for him to fade late, or take any round off.
 
-"I have to do it not only last rounds, I have to do it all fight", Bivol said. "I was thinking about generally, I have to do not just one punch more or one round more. I have to be better, I have to win each round without a doubt."
+Four months after the former swept the light heavyweight division in their first encounter, they will throw hands for a second time at the Kingdom Arena this weekend.
 
-For Beterbiev, the first meeting was a new experience. Bivol was the first man who managed to take Beterbiev the distance. Prior to that fight, Beterbiev had stopped all 20 of his professional opponents.
+Atop a fight card billed as one of the greatest of all-time , Beterbiev has the chance to stamp his authority on a division he has long appeared to be the kingpin within.
 
-"It's a new experience," Beterbiev said in the ring after the fight. "I'm happy for that. I'm a very simple boxer. Boxers in the world like me, there's more than 1,000. Even Muhammad Ali had fights go the distance."
+But Bivol, whose majority decision loss was questioned by many sat ringside last October, knows this might be his best shot for redemption in the Saudi Arabian capital.
 
-Still, there's little doubt Beterbiev wants to score a stoppage the second time around. His bruising, pressure style is built to break through opponents' defenses and break them down.
+DAZN News has everything you need to know ahead of Artur Beterbiev versus Dmitry Bivol 2.
 
-The rematch largely comes down to whether Bivol can keep Beterbiev off of him and more effectively use movement and jabs to pile up points. If Beterbiev is able to stay inside, it could be another disappointing night for Bivol.
+Artur Beterbiev vs Dmitry Bivol 2 fight date, start time
+Artur Beterbiev vs Dmitry Bivol 2 will take place  this Saturday (February 22)  at Riyadh Season's The Last Crescendo, with the whole card set to be shown live on DAZN.
 
-The rest of the card is stacked with big names and intriguing fights, a rarity in modern boxing.
+The main fight card and DAZN broadcast will begin at 7:00pm KSA; 4:00pm GMT; 11:00am ET; 8:00am PT.
 
-Martin Bakole stepped in on short notice to face Joseph Parker after IBF heavyweight champion Daniel Dubois fell ill during fight week. Securing Bakole on short notice was a big save as he's one of the best heavyweights in the world and Parker deserves that level of opponent after recent wins over Deontay Wilder and Zhilei Zhang. Zhang will also be in action on the card as he faces Agit Kabayel in the night's other big heavyweight pairing.
+Beterbiev versus Bivol will be 10:30pm GMT; 5:30pm ET; 3:30pm PT; 1:30am KSA.
 
-WBC lightweight champion Shakur Stevenson will also face a late replacement due to illness after Floyd Schofield withdrew from their fight. Stevenson will now face Josh Padley, who is coming off a big upset of Mark Chamberlain in September.
+Date : Saturday, February 22
+Time : 7:00pm KSA; 4:00pm GMT; 11:00am ET; 8:00am PT
+Artur Beterbiev vs. Dmitry Bivol 2 main event ringwalks (approx) : 2:00am KSA; 11:00pm GMT; 6:00pm ET; 3:00pm PT
+Fight	KSA	GMT	ET	PT
+Artur Beterbiev vs Dmitry Bivol 2	2:00am	11:00pm	6:00pm	3:00pm
+Joseph Parker vs Martin Bakole	12:40am	9:40pm	4:40pm	1:40pm
+Shakur Stevenson vs Josh Padley	11:35pm	8:35pm	3:35pm	12:35am
+Carlos Adames vs Hamzah Sheeraz	10:35pm	7:35pm	2:35pm	11:35am
+Vergil Ortiz Jr vs Israil Madrimov	9:40pm	6:40pm	1:40pm	10:40am
+Zhilei Zhang vs Agit Kabayel	8:40pm	5:40pm	12:40pm	9:40am
+Joshua Buatsi vs Callum Smith	7:45pm	4:45pm	11:45am	8:45am
 
-"It's been kind of crazy. It's been a lot going on, but I've remained focused," Stevenson said. "I know I put in a lot of work this training camp and I'm coming here with the same mentality. I know this is a guy that wants to take food off my table and I'm not going to let him.
+How to watch Artur Beterbiev vs Dmitry Bivol 2?
+Artur Beterbiev vs. Dmitry Bivol 2 and the whole fight card at The Last Crescendo will be available through DAZN Pay-Per-View.
 
-"I mean, I fought in the amateurs. I feel like it reminds me of the amateurs where you don't know who you are going to fight next. It's okay, I'm going to feel him out and take care of business."
+The PPV is available to buy now at   £19.99   in UK and   $25.99   in US. Buying with DAZN enters you into a free prize draw to win tickets to Chris Eubank Jr. vs Connor Benn*.
 
-Let's take a closer look at the rest of the undercard with the latest odds before getting to a prediction and expert pick on the main event.
+Watch the fight night anywhere with DAZN via smart TV's, smartphones, tablets, games consoles, streaming devices and PC's / laptops.
 
-Beterbiev vs. Bivol 2 fight card, odds
-Artur Beterbiev (c) -130 vs. Dmitry Bivol +105, undisputed light heavyweight title
-Joseph Parker -155 vs. Martin Bakole +125, heavyweights
-Shakur Stevenson (c) -4000 vs. Josh Padley +1400, WBC lightweight title
-Hamzah Sheeraz -300 vs. Carlos Adames (c) +235, WBC middleweight title
-Vergil Ortiz Jr. -125 vs. Israil Madrimov +100, junior middleweights
-Agit Kabayel -165 vs. Zhilei Zhang +135, heavyweights
-Joshua Buatsi -205 vs. Callum Smith +165, light heavyweights
-Mohammed Alakel vs. Engel Gomez, lightweights
-Where to watch Beterbiev vs. Bivol 2
-Date: Saturday, Feb. 22
-Start time: 10:30 a.m. ET | Where: Venue Riyadh -- Riyadh
-Stream: DAZN PPV or PPV.com | Price: $25.99
+Buying the Last Crescendo PPV provides a free seven-day trial of the full DAZN platform, with access to all boxing content, plus live action across football, golf, tennis, motorsport and more**.
 
-Prediction
-There are reasons to expect both Beterbiev and Bivol to be better in the rematch. Beterbiev came into the fight having had knee surgery months prior. He has admitted his knee was not at 100% in that first fight but with four months to continue healing and gaining strength, he should be able to even more effectively apply his pressure-first style.
+For PPV costs in your country and to buy now,   click here  .
 
-Bivol faded late in the first fight and knows he can't afford to give away rounds in the rematch. Looking at both fighters, Bivol is the man better equipped to adjust his approach with the data gathered in the first fight. Whether he can make those changes is the key to his chances of becoming undisputed champion.
+*UK only. Restrictions apply. See T&Cs on help.dazn.com.   Full T&C's here
 
-We scored the first fight narrowly for Bivol and with his ability to make the better adjustments for the rematch, the fight shades slightly his way despite his being a slight underdog. Pick: Dmitry Bivol via SD
+**Sports available in free trial dependent on country of residence
+
+Beterbiev vs Bivol 2 fight card
+Artur Beterbiev vs Dmitry Bivol ; Undisputed light heavyweight title fight, for Beterbiev's WBA, WBC, IBF, WBO and The Ring belts
+Joseph Parker vs Martin Bakole  ;  For Parker's WBO interim world title
+Shakur Stevenson vs Josh Padley  ; For Stevenson's WBC lightweight title
+Carlos Adames vs Hamzah Sheeraz ; For Adames' WBC middleweight title
+Vergil Ortiz Jr vs Israil Madrimov ; For Ortiz Jr's WBC world interim super welterweight title
+Zhilei Zhang vs Agit Kabayel ; For the vacant WBC interim heavyweight title
+Joshua Buatsi vs Callum Smith ; For Buatsi's WBO light heavyweight interim title
